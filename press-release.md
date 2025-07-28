@@ -77,8 +77,11 @@ For more than **50 years**, **KC HiLiTES** has set the benchmark for off-road li
 ## 📇 Media Contact
 
 **Randy Wimenta**
+
 Marketing Partnerships & Community Manager
+
 📧 [randy@kchilites.com](mailto:randy@kchilites.com)
+
 📞 626-786-8319
 
 ---
